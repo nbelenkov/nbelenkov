@@ -5,7 +5,7 @@
 🔙 Former Platform Architecture Intern @ Apple\
 🔙 Former Cybersecurity Analyst Intern @ Bank of America
 
-🔗 https://nikitabelenkov.tech\
+🔗 https://nikitabelenkov.tech
 
 I'm interested in:
 
